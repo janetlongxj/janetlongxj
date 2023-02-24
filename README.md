@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @janetlongxj
-- 👀 I’m currently master student in McGill
+- 👀 I am currently based in Montreal.
 -     This is a very basic and personal account. 
       It contains my assignments, random thoughts and personal work. 
       Everything here is for non-profit use only.
